@@ -14,6 +14,13 @@
 <br>
 
 ✦ ───── ❅ ───── ✦
-<details><summary><sub>BYI</sub></summary><sub>I'm quite awkward and indifferent to the people around me. If you want to say something to me, only w2i. Just talk about something useful or anyone, no need for small talk because that's useless in my opinion.</sub></details>
+<details>
+<summary><ins>byi</ins></summary>
 
-</div>
+<p align="center">
+I'm quite awkward and indifferent to the people around me.<br>
+If you want to say something to me, only w2i.<br>
+No need for small talk, just talk about something useful.
+</p>
+
+</details>
