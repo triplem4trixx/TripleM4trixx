@@ -18,9 +18,24 @@
 <summary><ins>byi</ins></summary>
 
 <p align="center">
+  
 I'm quite awkward and indifferent to the people around me.<br>
-If you want to say something to me, only w2i.<br>
-No need for small talk, just talk about something useful.
+if you want to say something to me, only w2i.<br>
+no need for small talk, just talk about something useful.
+</p>
+
+</details>
+
+<details>
+<summary><ins>dni</ins></summary>
+
+<p align="center">
+
+homophobic. <br>
+rasict.<br>
+spammer.<br>
+toxic shipper (especially shadowvanilla, burningcacao, doublefedora, fruitcake AND SELFCEST SHIPPERS)<br>
+talking about useless things.
 </p>
 
 </details>
