@@ -7,14 +7,13 @@
 <br>
 <br>
 <sub>
-<a href="https://slepttena.atabook.org">ATA</a> ⋮
+<a href="https://slepttena.atabook.org">ATABOOK</a> ┆
 <a href="https://www.tiktok.com/@slepttena">TIKTOK</a>
 </sub>
 
 <br>
 <br>
 
-✦ ───── ❅ ───── ✦
 <details>
 <summary><ins>byi</ins></summary>
 
