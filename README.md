@@ -16,9 +16,8 @@
 <summary><sub>INFO-BYI</sub></summary>
 
 <sub>
-kinda slowresp bc are chatting in party/offtab a lot, w2i preferred.
-<br>
-do not be shy to c+h with me, i dont bite.
+I'm quite awkward and indifferent to the people around me, if you want to say something to me only w2i, just talk about something useful or anyone, no need for small talk because that's useless in my opinion. 
+  
 </sub>
 
 </details>
