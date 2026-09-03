@@ -31,7 +31,8 @@ no need for small talk, just talk about something useful.
 <summary><ins>dni</ins></summary>
 
 <p align="center">
-
+  
+fomo.<br>
 homophobic. <br>
 rasict.<br>
 spammer.<br>
