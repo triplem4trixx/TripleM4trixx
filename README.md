@@ -1,7 +1,7 @@
 <div align="center">
 
 "The burdens that weigh heavily upon my shoulders..."
-<br><br>
+<br>
 
 <img width="1698" height="1026" alt="Image" src="https://github.com/user-attachments/assets/94474c49-bd1c-48d9-adff-ef8e96bfcca2" />
 <br>
@@ -11,6 +11,7 @@
 <a href="https://www.tiktok.com/@slepttena">TIKTOK</a>
 </sub>
 
+<br>
 <br>
 
 ✦ ───── ❅ ───── ✦
