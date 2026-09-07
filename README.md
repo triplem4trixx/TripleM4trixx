@@ -1,10 +1,17 @@
-<div align="center">
+<p align="left">
+  <img src="https://img.shields.io/badge/The%20burdens%20that%20weigh%20heavily-4A4A4A?style=for-the-badge">
+</p>
 
-"The burdens that weigh heavily upon my shoulders..."
-<br>
+<p align="right">
+  <img src="https://img.shields.io/badge/upon%20my%20shoulders...-4A4A4A?style=for-the-badge">
+</p>
 
 <img width="1698" height="1026" alt="Image" src="https://github.com/user-attachments/assets/94474c49-bd1c-48d9-adff-ef8e96bfcca2" />
+
+<div align="center">
+  
 <br>
+<img src="https://komarev.com/ghpvc/?username=triplem4trixx&label=Visitors&color=9B7AA8&style=flat" />
 <br>
 <sub>
 <a href="https://slepttena.atabook.org">ATABOOK</a> ┆
@@ -18,10 +25,11 @@
 <summary><ins>byi</ins></summary>
 
 <p align="center">
-  
+
+not a multifandom person.<br>
+kinda slowrespon.<br>
 im quite awkward and indifferent to the people around me.<br>
 if you want to say something to me, only w2i (I do not like public chat).<br>
-not a multifandom person.<br>
 i do not like to talk about 'ships', i am neutral towards all ships (except in the DNI menu).<br>
 
 </details>
