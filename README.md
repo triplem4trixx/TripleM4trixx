@@ -31,13 +31,11 @@ n͟o͟t͟ a͟ m͟u͟l͟t͟i͟f͟a͟n͟d͟o͟m͟ person.<br>
 quite awkward and indifferent to the people around me.<br>
 a person who g͟e͟t͟s͟ a͟n͟g͟r͟y͟ e͟a͟s͟i͟l͟y͟ but doesnt take it personally.<br>
 t͟o͟x͟i͟c͟ person. (both w͟o͟r͟d͟s͟  and b͟e͟h͟a͟v͟i͟o͟r͟)<br>
-i like hide/block people if they are really annoying to me.<br>
+i hide/block people freely if they are really annoying to me.<br>
 kinda s͟l͟o͟w͟r͟e͟s͟p͟o͟n͟. if you want to say something to me, only w2i (i dont like public chat).<br>
 
 
 j͟u͟s͟t͟i͟f͟i͟e͟s͟ a͟l͟l͟ B͟u͟r͟n͟i͟n͟g͟ S͟p͟i͟c͟e͟ s͟h͟i͟p͟s͟ and neutral with all ships (except in the DNI menu)<br>
-
-<br>
 
 </details>
 <div align="center"> 
@@ -48,12 +46,12 @@ j͟u͟s͟t͟i͟f͟i͟e͟s͟ a͟l͟l͟ B͟u͟r͟n͟i͟n͟g͟ S͟p͟i͟c͟e͟ s͟h
 
 fomo.<br>
 homohobic.<br>
-problematic person.<br>
+problematic.<br>
 tr*mp supporters.<br>
 rasict.<br>
-spam chats.<br>
-toxic/selfcest shippers (especially shadowvanilla, burningcacao, doublefedora, fruitcake, darklily, etc.)<br>
-discussing about s͟h͟i͟p͟s͟, try to discuss something more u͟s͟e͟f͟u͟l͟.</p>
+spammer.<br>
+t͟o͟x͟i͟c͟/s͟e͟l͟f͟c͟e͟s͟t͟ shippers (especially shadowvanilla, burningcacao, doublefedora, fruitcake, darklily, etc.)<br>
+discussing about s͟h͟i͟p͟s͟, please try to discuss something more u͟s͟e͟f͟u͟l͟.</p>
 
 </details>
 <div align="center"> 
