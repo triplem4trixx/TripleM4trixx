@@ -31,7 +31,7 @@ kinda slowrespon.<br>
 im quite awkward and indifferent to the people around me.<br>
 if you want to say something to me, only w2i (I do not like public chat).<br>
 do not be shy to c+h with me, i dont bite. <br>
-i do not like to talk about 'ships', i am neutral towards all ships (except in the DNI menu).<br>
+im neutral with s͟h͟i͟p͟s͟ , but i dont like to talk about it. (especially in the DNI menu).<br>
 
 </details>
 <div align="center"> 
