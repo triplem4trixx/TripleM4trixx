@@ -26,12 +26,13 @@ Matrix or Eve (she/they/them/any)<br>
 
 <p align="center">
 
+im teenager person.<br>
 not a multifandom person.<br>
-kinda slowrespon.<br>
-im quite awkward and indifferent to the people around me.<br>
-if you want to say something to me, only w2i (I do not like public chat).<br>
-do not be shy to c+h with me, i dont bite. <br>
-im neutral with s͟h͟i͟p͟s͟ , but i dont like to talk about it. (especially in the DNI menu).<br>
+kinda s͟l͟o͟w͟r͟e͟s͟p͟o͟n͟.<br>
+quite awkward and indifferent to the people around me.<br>
+if you want to say something to me, only w2i (i dont like public chat).<br>
+f͟r͟e͟e͟ c͟+h͟, dont be shy, i d͟o͟n͟t͟ b͟i͟t͟e͟.<br>
+im neutral with s͟h͟i͟p͟s͟ (except in the DNI menu)<br>
 
 </details>
 <div align="center"> 
@@ -39,13 +40,15 @@ im neutral with s͟h͟i͟p͟s͟ , but i dont like to talk about it. (especially 
 <summary><ins>dni</ins></summary>
 
 <p align="center">
-  
+
 fomo.<br>
-homophobic. <br>
+homophobic.<br>
+problematic person.<br>
+tr*mp supporters.<br>
 rasict.<br>
 spammer.<br>
-toxic shipper (especially shadowvanilla, burningcacao, doublefedora, fruitcake AND SELFCEST SHIPPERS)<br>
-talking about useless things.
+toxic/selfcest shippers (especially shadowvanilla, burningcacao, doublefedora, fruitcake, darklily, etc.)<br>
+discussing about s͟h͟i͟p͟s͟, try to discuss something more u͟s͟e͟f͟u͟l͟.
 </p>
 
 </details>
