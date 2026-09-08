@@ -15,11 +15,10 @@
 <br>
 <div align="center">
 
-matrix or eve (she/they/them/any)<br>
+Matrix or Eve (she/they/them/any)<br>
 ˋ꒰ aqua , 01'  |  INTP . 💭 ꒱ IDN/ENG.<br>
 <br>
-"Without showing off, you already know who i'm more into."
-
+“ W͟i͟t͟h͟o͟u͟t͟ s͟h͟o͟w͟i͟n͟g͟ o͟f͟f͟, y͟o͟u͟ a͟l͟r͟e͟a͟d͟y͟ k͟n͟o͟w͟ w͟h͟o͟ i͟'m͟ m͟o͟r͟e͟ i͟n͟t͟o͟. ”
 </div>
 <div align="center">
 <details>
@@ -31,6 +30,7 @@ not a multifandom person.<br>
 kinda slowrespon.<br>
 im quite awkward and indifferent to the people around me.<br>
 if you want to say something to me, only w2i (I do not like public chat).<br>
+do not be shy to c+h with me, i dont bite. <br>
 i do not like to talk about 'ships', i am neutral towards all ships (except in the DNI menu).<br>
 
 </details>
