@@ -5,7 +5,7 @@
 <p align="right">
   <img src="https://img.shields.io/badge/upon%20my%20shoulders...-4A4A4A?style=for-the-badge">
 </p>
-<img width="3500" height="3072" alt="Image" src="https://github.com/user-attachments/assets/73e95904-bd2a-466e-a657-330619a087c3" />
+<img width="3500" height="2684" alt="Image" src="https://github.com/user-attachments/assets/0362f445-ef50-4278-9154-113cee3f2ee2" />
 
 <div align="center">
 <br>
