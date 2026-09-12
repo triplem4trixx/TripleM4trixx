@@ -27,7 +27,7 @@ Matrix or Eve (she/they/them/any)<br>
 <p align="center">
 
 teenager person.<br>
-n͟o͟t͟ a͟ m͟u͟l͟t͟i͟f͟a͟n͟d͟o͟m͟ person.<br>
+n͟o͟t͟ a͟ m͟u͟l͟t͟i͟f͟a͟n͟d͟o͟m͟ person. (i even forgot what my fandoms are, im sorry 🙏)<br>
 quite awkward and indifferent to the people around me.<br>
 a person who g͟e͟t͟s͟ a͟n͟g͟r͟y͟ e͟a͟s͟i͟l͟y͟ but doesnt take it personally.<br>
 t͟o͟x͟i͟c͟ person. (both w͟o͟r͟d͟s͟  and b͟e͟h͟a͟v͟i͟o͟r͟)<br>
